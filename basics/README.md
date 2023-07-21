@@ -1,1 +1,1 @@
-pendiente de actualizar
+pendiente de actualactualizar
